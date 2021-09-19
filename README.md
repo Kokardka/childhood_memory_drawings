@@ -1,6 +1,6 @@
 # childhood_memory_drawings
 
-![koi](https://user-images.githubusercontent.com/72028760/133929951-adabb4d0-ec4f-49bb-99da-f551657e54ff.jpg)
+![koi](https://user-images.githubusercontent.com/72028760/133932149-b25f293d-df73-46bf-8a9d-f0e97bad22e6.jpg)
 
 Recent Microsoft Paint draw.
 
