@@ -1,8 +1,10 @@
-![koi](https://user-images.githubusercontent.com/72028760/133929929-b25a5929-25cb-4b2e-b13f-47ac9a4116b2.jpg)
-
 # childhood_memory_drawings
 
-About 17 years ago...
+![koi](https://user-images.githubusercontent.com/72028760/133929951-adabb4d0-ec4f-49bb-99da-f551657e54ff.jpg)
+
+Recent Microsoft Paint draw.
+
+But... About 17 years ago...
 
 I liked to create pictures in simply Microsoft Paint.
 
