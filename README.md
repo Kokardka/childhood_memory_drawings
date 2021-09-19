@@ -2,7 +2,7 @@
 
 ![koi](https://user-images.githubusercontent.com/72028760/133932149-b25f293d-df73-46bf-8a9d-f0e97bad22e6.jpg)
 
-Recent Microsoft Paint draw.
+My recent Microsoft Paint draw.
 
 But... About 17 years ago...
 
